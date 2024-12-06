@@ -1,1 +1,0 @@
-# daveseligernyc.github.io
